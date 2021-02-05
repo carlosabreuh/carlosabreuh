@@ -9,5 +9,5 @@ About me: 👻
 - 😄 Pronouns: He/Him/His
 - ⚡ I love learning about new technologies
 - 📸 Only RAW format --> www.carlosnj.com
-- 💁🏾‍LinkedIn linkedin.com/in/carlosenlanube/
+- 💁🏾‍LinkedIn --> www.linkedin.com/in/carlosenlanube/
 
