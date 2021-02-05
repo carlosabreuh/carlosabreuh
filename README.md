@@ -8,6 +8,5 @@ About me: 👻
 - 📫 How to reach me: carlos@abreuh.com
 - 😄 Pronouns: He/Him/His
 - ⚡ I love learning about new technologies
-- 📸 Only RAW format --> www.carlosnj.com
 - 💁🏾‍LinkedIn --> www.linkedin.com/in/carlosenlanube/
 
