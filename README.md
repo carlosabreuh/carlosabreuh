@@ -1,4 +1,4 @@
-![alt text](https://github.com/carlosabreuh/carlosabreuh/blob/main/HelloWorld!.png?raw=true)
+![alt text](https://www.canva.com/design/DAEVO9X9U9Q/zfxprL8mmGCnhGAv63P04g/view?utm_content=DAEVO9X9U9Q&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
 
 About me: 👻
 
